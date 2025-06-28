@@ -1,6 +1,6 @@
 2022年4月29日                                                                   
 我在路边发现了一个长得像鱼头的石头
-![](https://i0.hdslb.com/bfs/new_dyn/bc75d7dda65f376e5cbd9b1931c7822f3493145058740516.jpg@176w_176h_1c_1s.avif)
+![](https://i0.hdslb.com/bfs/new_dyn/bc75d7dda65f376e5cbd9b1931c7822f3493145058740516.jpg)
 2024年6月某日
 老师在我的卷子上的一道不该错而错了的题旁边写了个你真棒，于是我用学校的电子白板给它拍了个照并传了回来
 ![](https://i0.hdslb.com/bfs/new_dyn/82d50f8d91ff307faa8b16efeb0b07553493145058740516.png@176w_176h_1c_1s.avif)
